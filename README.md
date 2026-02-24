@@ -1,6 +1,6 @@
 # Hi, I'm Andrea 👋  
 Product Marketing | AI & Strategy | Building tools that connect people, data, and decisions  \
-[download](url) my resume
+[download](AndreaMartinaZaghiGanterResume.pdf) my resume
 
 ## 🚀 Currently
 - 🎓 MBA at Kelley School of Business  
